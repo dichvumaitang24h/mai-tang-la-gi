@@ -9,7 +9,7 @@
 # Mai táng là quá trình đưa thi thể người mất vào nơi an nghỉ cuối cùng, thường là chôn cất dưới lòng đất hoặc thiêu hủy (hỏa táng). Nói cách khác, mai táng là bước cuối cùng của một tang lễ, sau khi đã thực hiện các nghi thức như phát tang, khâm liệm, truy điệu và di quan.
 
 # 
-
+Xem thêm: https://maitanggiangtho.vn/mai-tang-la-gi/
 # Từ “mai táng” xuất phát từ chữ Hán: “mai” (埋) nghĩa là chôn lấp, “táng” (葬) nghĩa là an táng, chôn cất người chết. Như vậy, mai táng có thể hiểu là hành động chôn người mất một cách trang trọng, đúng phong tục và đầy đủ nghi lễ.
 
 # 
